@@ -1,4 +1,4 @@
-
+Experience run for brainrots like never before with vip run for brainrots Scripts, the #1 Script. Includes auto-collect and one-hit kill for
 
 
 
